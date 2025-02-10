@@ -1,0 +1,1 @@
+# Spore-hyprscursor-theme
